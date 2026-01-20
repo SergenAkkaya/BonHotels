@@ -1,1 +1,1 @@
-Demo : https://sergenakkaya.com/Bonhotel/index.html
+Demo : [sergenakkaya.com.tr](https://www.sergenakkaya.com.tr/project/bonhotels/)
